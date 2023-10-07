@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+Perkenalkan saya Intan Adiba
+
+Sedang berkuliah di UPN Veteran Jawa Timur jurusan Sains Data
+
+You can contact me https://www.instagram.com/intanadibaa/
 <!--
 **IntanAdibaa/IntanAdibaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
