@@ -1,8 +1,8 @@
 ### Hi there 👋
 
-Perkenalkan saya **Intan Adiba**.<br>
+i'm **Intan Adiba**.<br>
 
-Sedang berkuliah di **UPN Veteran Jawa Timur** jurusan **Sains Data**
+i'm currently an undegraduate student at **UPN Veteran Jawa Timur** major in **Sains Data**
 
 You can contact me at [Instagram](https://www.instagram.com/intanadibaa/) and [Linkedin](https://www.linkedin.com/in/intan-adiba-47a161191/).<br>
 
