@@ -4,7 +4,7 @@ Perkenalkan saya **Intan Adiba**.<br>
 
 Sedang berkuliah di **UPN Veteran Jawa Timur** jurusan **Sains Data**
 
-You can contact me at [Instagram](https://www.instagram.com/intanadibaa/)<br> and [Linkedin](https://www.linkedin.com/in/intan-adiba-47a161191/).<br>
+You can contact me at [Instagram](https://www.instagram.com/intanadibaa/) and [Linkedin](https://www.linkedin.com/in/intan-adiba-47a161191/).<br>
 
 ### GitHub Statistic
 <p align"left">
